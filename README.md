@@ -1,0 +1,1 @@
+# birva-bootstrap-parallax-one-page-template
